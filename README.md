@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Great Day! I'm Hyewon Rosa Kim who is interested in blabla~~ from South Korea.
+
+If you'd like to contact me, please leave me a message!
